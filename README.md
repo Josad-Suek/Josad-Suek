@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to impress older clients
 - 💞️ I’m looking to collaborate on CPI
 - 📫 How to reach me: through NZCPI
-- 😄 Pronouns: Z, Z, Z
+- 😄 Pronouns: Tubicle-Oasis, Subicle-Oasis, Tubile-Ocinias, Tillecular-spockiuliarism, Butanian-Meniscular, Toscobuclarianoscular etc.
 - ⚡ Fun fact: I am an actor at NZCPI
 
 <!---
